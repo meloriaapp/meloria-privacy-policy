@@ -1,4 +1,4 @@
-# Meloria - Kullanım Koşulları
+# Meloria - Terms of Service
 
 **Son Güncelleme Tarihi: 31 Mart 2026**
 
